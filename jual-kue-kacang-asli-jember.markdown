@@ -38,9 +38,9 @@ Gudang penyimpanan yang tersedia saat ini ada di Jakarta, Bandung, Blitar, Surak
 https://www.mbahgenit.co.id
 https://www.mauorderonline.com/order-kucang
 
-0852 9054 3120
-0852 9054 3124 
-0812 8236 0083
-0813 5762 1280
-0821 3678 3880
-0852 0444 2224
+0852 9054 3120 <br>
+0852 9054 3124 <br>
+0812 8236 0083 <br>
+0813 5762 1280 <br>
+0821 3678 3880 <br>
+0852 0444 2224 <br>
