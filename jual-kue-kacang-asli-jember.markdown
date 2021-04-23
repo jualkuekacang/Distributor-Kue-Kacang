@@ -51,8 +51,8 @@ Varian Kue Kacang Kami :
 
 ### Gudang penyimpanan yang tersedia saat ini ada di Jakarta, Bandung, Blitar, Surakarta dan Jember
 
-https://www.mbahgenit.co.id
-https://www.mauorderonline.com/order-kucang
+<a>https://www.mbahgenit.co.id </a><br>
+<a>https://www.mauorderonline.com/order-kucang </a>
 
 0852 9054 3120 <br>
 0852 9054 3124 <br>
